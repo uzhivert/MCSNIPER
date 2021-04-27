@@ -1,2 +1,1 @@
-# MCSNIPER
-coded myself
+gay
